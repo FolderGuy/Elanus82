@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Elanus82
+- 👀 I’m interested in Gaming, Reading and recently Coding
+- 🌱 I’m currently learning Coding
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me: Discord Tag Elanus#1924
