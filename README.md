@@ -1,2 +1,2 @@
--  Hi, I’m @Elanus82
--  How to reach me: Discord Tag Elanus#1924
+-  Hi, I’m FolderGuy, aka Caeruleus
+-  How to reach me: Discord Tag @FolderGuy
