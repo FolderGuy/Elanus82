@@ -1,2 +1,2 @@
-- I do stuffs in python cuz ¯\_(ツ)_/¯
+- I do stuffs in python cuz ¯\\_(ツ)_/¯
 -  Discord @aekhlys
