@@ -1,2 +1,3 @@
-- I do stuffs in python cuz ¯\\_(ツ)_/¯
--  Discord @aekhlys
+-  I do stuffs in python cuz ¯\\_(ツ)_/¯
+-  maybe throw some SQL and C in 
+-  Discord @aekhlys mostly always free when on
