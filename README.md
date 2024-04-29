@@ -1,3 +1,3 @@
 -  I do stuff in python
--  maybe throw some SQL and C in 
+-  also know some SQL and html/css/js
 -  Discord @aekhlys mostly always free when on
