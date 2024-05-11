@@ -1,3 +1,2 @@
--  I do stuff in python
--  also know some SQL and html/css/js
+- I do stuff in Python and HTML/CSS/JavaScript
 -  Discord @aekhlys mostly always free when on
